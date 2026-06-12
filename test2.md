@@ -1,0 +1,1 @@
+remodulga o'zgardi.
